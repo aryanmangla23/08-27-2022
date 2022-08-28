@@ -14,6 +14,7 @@ And one teen in his time plays many parts
 
 His act being seven chapters:
 
+
 At first, a stranger among the usual crowd
 
 Like strangers to friends
@@ -21,6 +22,7 @@ Like strangers to friends
 One obstacle, a thousand pieces
 
 **To blindly lose himself.**
+
 
 The pretense of societal norms
 
@@ -30,6 +32,7 @@ An armor over his soul
 
 **To blindly lose himself.**
 
+
 Head in the blue sky
 
 Smiling around adversity at the mere thought
@@ -37,6 +40,7 @@ Smiling around adversity at the mere thought
 Understand true anxiety
 
 **To blindly lose himself.**
+
 
 The blue yet cloudy sky
 
@@ -46,17 +50,20 @@ Filled with sorrow and uncertainty
 
 **To blindly lose himself.**
 
+
 Looking deep within the cloudy sky
 
 Sworn to clear up
 
 **To work on himself.**
 
+
 Completion of a twenty year dream
 
 A prestigious title to make a difference in the world
 
 **To heal people.**
+
 
 Left my searching behind for you to find me
 
