@@ -2,7 +2,9 @@
 
 Previous [Diary](https://aryanmangla23.github.io/08-26-2022/)
 
-Next [Diary](https://aryanmangla23.github.io/08-28-2022/)
+Next [Diary](https://aryanmangla23.github.io/08-28-2022
+
+Woke up at 6:30. Made food and tea. Meeting at 11-12. Haircut. Came back at 1. Showered and cleaned up my beard. Fell asleep and woke up at 5:20. Worked till 1. No feelings to accentuate for today.
 
 All the world’s a stage,
 
